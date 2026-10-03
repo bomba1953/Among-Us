@@ -224,4 +224,4 @@ Among Us is available as a full free version with all features and updates inclu
 Don't miss out on the fun! **Download Among Us free today** and embark on a journey filled with excitement, strategy, and teamwork!
 
 ---
-**Last updated:** 2026-10-03 12:25:12 UTC
+**Last updated:** 2026-10-03 17:10:01 UTC
